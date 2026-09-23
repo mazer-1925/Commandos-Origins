@@ -214,4 +214,4 @@ Commandos: Origins is available as a full free version, with all features and up
 Don't miss out on the opportunity to dive into the thrilling world of Commandos: Origins. **Download it now and start your adventure!**
 
 ---
-**Last updated:** 2026-09-23 05:36:37 UTC
+**Last updated:** 2026-09-23 11:00:16 UTC
